@@ -1,5 +1,6 @@
 # TheWizard
 Hellou!
+![hi](https://github.com/user-attachments/assets/062277a7-ec57-4039-9e69-5bebda170ae3)
 
 I'm TheWizard / TheWizardGame (my irl name Pavel / Paul)
 
