@@ -14,7 +14,15 @@ c+h, int please!!
 
 If you want to text me (ONLY TELEGRAM) here is my profile - @TheWizardGame
 
-I'm always glad for new friends, if you shy, dont worry, im too :P
+I'm always glad for new friends, if you shy to int, dont worry, im too :P
+
+Sometimes I can just be annoying and attract attention, im sorry.
+
+I can be offtab or afk (Busy) just whisper, ill answer you!
+
+Nana sigm
+
+Song of the week | Myths Of Yamaha - Premeditated
 
 Чиназес
 I Think thats all
