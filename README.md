@@ -28,5 +28,4 @@ Song of the week | Myths Of Yamaha - Premeditated
 
 I Think thats all
 
-[premedCloudBg.webm](https://github.com/user-attachments/assets/93329abc-0763-4803-8650-cec00d64d206)
-
+![buildings_skyscrapers_lights_973923_1920x1080](https://github.com/user-attachments/assets/88ae1827-ea4a-4e19-a3d7-d396fb8bb14e)
