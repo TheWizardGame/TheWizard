@@ -22,9 +22,9 @@ I can be offtab or afk (Busy) just whisper, ill answer you!
 
 Nana sigm
 
-Song of the week | Myths Of Yamaha - Premeditated
-
 Чиназес
+
+Sorry, im cooked. 
 
 I Think thats all
 
