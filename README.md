@@ -24,7 +24,7 @@ Nana sigm
 
 Чиназес
 
-Sorry, im cooked. 
+who eats my cheese chips
 
 I Think thats all
 
