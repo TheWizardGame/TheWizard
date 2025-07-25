@@ -2,6 +2,9 @@
 old readme is sucks
 no more old readme
 
+---------------------------------
+ТГК: https://t.me/+ChLNfV-WQ9I0YmFi
+---------------------------------
 Steam: https://steamcommunity.com/id/TheWizardGame/
 ---------------------------------
 VK: http://vk.com/thewizardgame
