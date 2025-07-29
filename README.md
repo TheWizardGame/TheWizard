@@ -1,9 +1,12 @@
 # TheWizard
--old readme is sucks, 
--no more old readme
+old readme is sucks, 
+no more old readme
 ---------------------------------
 -int if you want, i dont mind.
+---------------------------------
 -fnf zone only
+---------------------------------
+---------------------------------
 ---------------------------------
 ТГК: https://t.me/+ChLNfV-WQ9I0YmFi
 ---------------------------------
