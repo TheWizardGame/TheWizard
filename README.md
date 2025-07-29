@@ -10,6 +10,8 @@ no more old readme
 ---------------------------------
 ТГК: https://t.me/+ChLNfV-WQ9I0YmFi
 ---------------------------------
+atabook: https://thewizard.atabook.org/
+---------------------------------
 Steam: https://steamcommunity.com/id/TheWizardGame/
 ---------------------------------
 VK: http://vk.com/thewizardgame
@@ -24,7 +26,7 @@ YouTube: https://www.youtube.com/@TheWizardGame_?sub_confirmation=1
 ---------------------------------
 Twitch: https://www.twitch.tv/thewizardgame1
 ---------------------------------
-Sussy pus##: https://drive.google.com/file/d/1QAo43GpTScWeKU5HNtGnhRsd5IDugz7M/view?usp=sharing
+TikTok: https://tiktok.com/@thewizardgame
 ---------------------------------
 
 
